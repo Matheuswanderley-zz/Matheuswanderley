@@ -4,7 +4,7 @@
 
 Here are some ideas to get you started:
 
-- 🔭 I’m currently working on @mobly as a Tech Lead
+- 🔭 I’m currently working or take a time to rest
 - 📫 How to reach me: matheuswanderley1988@gmail.com
 - ⚡ Fun fact: All tattoed
 
